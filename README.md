@@ -91,7 +91,7 @@ Location KPIs:
 
 ## Project Presentation
 
-https://www.canva.com/design/DAF4b_QR4-0/cxoS4bgAY-N73LIUHhu6zw/edit?utm_content=DAF4b_QR4-0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAGLSNmMjnY/zuvLf9NSOqPTa5dd-iJNVA/edit?utm_content=DAGLSNmMjnY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 
 
